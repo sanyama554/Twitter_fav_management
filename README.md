@@ -1,2 +1,2 @@
 # Twitter_fav_management
-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
+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
